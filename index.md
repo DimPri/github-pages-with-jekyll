@@ -1,3 +1,5 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Hello Officers!
+
+I'm glad you arrived at my coffee shop called "Kafeneio"!
